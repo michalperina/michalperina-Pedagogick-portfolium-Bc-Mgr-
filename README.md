@@ -1,4 +1,4 @@
-Pedagogické portfolio <br>
+**Pedagogické portfolio** <br>
 Bakalářské studium <br>
 Tomáš Bajer (D25861) <br>
 ITma-TEVmi <br>
